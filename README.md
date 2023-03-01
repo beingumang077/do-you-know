@@ -1,0 +1,1 @@
+A basic GK quiz to test your knowledge on certain events.
